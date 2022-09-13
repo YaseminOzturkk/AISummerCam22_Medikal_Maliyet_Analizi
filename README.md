@@ -1,0 +1,1 @@
+# AISummerCam22_Medikal_Maliyet_Analizi
